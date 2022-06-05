@@ -1,1 +1,0 @@
-# Rybak-Yurii_TPIS
